@@ -1,2 +1,2 @@
-# readable-terracota.github.io
-to commemorate cherished thoughts 
+Readable terracota
+A place to travel to in seclusion.
